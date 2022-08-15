@@ -1,0 +1,1 @@
+# adobePhotoshop-crack
